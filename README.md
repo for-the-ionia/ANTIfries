@@ -19,5 +19,6 @@ Anti-Fries 🍟薯条黑粉总会([@AntiFries](https://t.me/AntiFries))**[黑粉
 ### 相关表情包
 
 [薯薯专属语录表情包(持续更新敬请关注)](https://t.me/addstickers/ANTIFRIESPLUS)  https://t.me/addstickers/ANTIFRIESPLUS
+
 不完全的表情包源文件->[ANTIFRIESPLUS](https://github.com/for-the-ionia/ANTIfries/tree/main/Incomplete%20emoji)
 
