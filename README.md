@@ -1,2 +1,2 @@
 # ANTIfries
-Anti-fries is a non-governmental public opinion organization.
+## Anti-fries is a non-governmental public opinion organization.
