@@ -32,4 +32,4 @@ Anti-Fries 🍟薯条黑粉总会([@AntiFries](https://t.me/AntiFries))**[黑粉
 整点玛卡巴卡💩 - TG黑🍟总工会👊([@FriesAuti](https://t.me/FriesAuti))**[黑粉会]**
 
 ### 鸣谢
-**感谢 [@VirgilClyne]https://github.com/VirgilClyne 配合 这是专门黑他的**
+**感谢 [@VirgilClyne](https://github.com/VirgilClyne) 配合 这是专门黑他的**
