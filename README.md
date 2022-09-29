@@ -24,7 +24,7 @@ Anti-Fries 🍟薯条黑粉总会([@AntiFries](https://t.me/AntiFries))**[黑粉
 
 ##### 关于我们
 
-telegram黑薯条总工会,Anti-Fries黑粉总会成立于2022年7月，旨在构建**友好，文明的交流环境**，总部设立在 461 Clementi Road Singapore 599491, SG，和维多利亚街81号。
+telegram黑薯条总工会,Anti-Fries黑粉总会成立于2022年7月，旨在构建**友好，文明的交流环境**，总部设立在 461 Clementi Road Singapore 599491, SG，维多利亚街81号。
 
 ##### 加入我们--点击即可
 Anti-Fries 🍟薯条黑粉总会([@AntiFries](https://t.me/AntiFries))**[黑粉会]**
